@@ -7,7 +7,7 @@
 - 📫 How to reach me 👇
 
 Gmail: keerthi17012001@gmail.com  
-Instagram: [_._keeru_._](https://www.instagram.com/_._keeru_._)   
+Instagram: [/_./_keeru/_/._](https://www.instagram.com/_._keeru_._)   
 Twitter: [Keerthi55565831](https://twitter.com/Keerthi55565831)  
 
 <!---
