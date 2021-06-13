@@ -1,6 +1,6 @@
 👋 Hi, I’m Keerthi A.K.A i-am-keeru  
   
-- 👀 I’m interested in everythig !!!
+- 👀 I’m interested in everything !!!
   
 - 💞️ I’m looking to collaborate on any work that amazes me.  
   
